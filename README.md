@@ -1,3 +1,3 @@
 ### REMAKING
 
-![](https://i.imgur.com/KCLsE8U.gif)
+![](https://i.imgur.com/DYIfT41.png)
