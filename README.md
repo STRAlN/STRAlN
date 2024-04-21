@@ -1,3 +1,3 @@
 ### REMAKING
 
-![](https://files.catbox.moe/5lymab.webp)
+![](https://i.imgur.com/ImC3T4Y.jpg)
