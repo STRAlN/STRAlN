@@ -1,4 +1,4 @@
-![div](https://files.catbox.moe/c18hze.jpg)
+![div](https://files.catbox.moe/v7fkw6.jpeg)
 
 ![](https://pbs.twimg.com/profile_images/1208468781154078721/xzWAW-eL_200x200.jpg)‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ![theactualdivider](https://i.imgur.com/rTHwqdq.png)‎ ‎ ‎ ‎ ‎ ‎ ‎ ![div2](https://cdn.discordapp.com/emojis/1122267392890908867.webp?size=28&quality=lossless) [![rentry](https://i.imgur.com/Zv1Ktfq.png)](https://rentry.co/strain) ![smalldiv](https://cdn.discordapp.com/emojis/1125564159988355162.webp?size=28&quality=lossless)  [![gb](https://i.imgur.com/gmHqazM.png)](https://strain.123guestbook.com/) ![smalldiv](https://cdn.discordapp.com/emojis/1125564159988355162.webp?size=28&quality=lossless)  [![hoard](https://i.imgur.com/ven1qTu.png)](https://rentry.co/terrancehoard) ![end](https://files.catbox.moe/axzxxw.png)
 
